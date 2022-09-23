@@ -1,0 +1,2 @@
+# ARTIFICIAL INTELLIGENCE AI
+ AI Categories 
